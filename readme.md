@@ -4,9 +4,9 @@
 Play ALL THE BEST UNBLOCKED GAMES Unblocked Games at fast speed 1gps on proxy servers:
 
 Find and play games at:
-<a href="https://6xgames.com">6xgames.com </a>
+<a href="https://ubggames.com">UbgGames.com </a>
 
-https://6xgames.com  - Unblocked Games 6X
+https://ubggames.com  - UBG GAMES
 
 
 
